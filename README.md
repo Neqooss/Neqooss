@@ -1,6 +1,6 @@
 - Tutaj znajdziesz pliki :D
 
-Kontakt:
+- Kontakt:
 discord: Neqooss#8170
 gmail: neqooss.pvp@gmail.com
 
