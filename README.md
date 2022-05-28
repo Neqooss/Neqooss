@@ -4,4 +4,4 @@ Kontakt:
 discord: Neqooss#8170
 gmail: neqooss.pvp@gmail.com
 
-Życze miłego dnia, wieczoru lub nocy :D
+Życze miłego dnia, wieczoru lub nocy :D :D :D
