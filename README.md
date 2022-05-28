@@ -1,4 +1,4 @@
-- Tutaj znajdzież różne legit rzeczy.
+- Tutaj znajdziesz pliki :D
 
 Kontakt:
 discord: Neqooss#8170
