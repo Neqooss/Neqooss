@@ -1,7 +1,3 @@
-- Tutaj znajdziesz pliki :D
+Maxskills: https://github.com/cinarbenli/ReponseMod_AutoMaxskills
+Announce: https://unturnedstore.com/products/202
 
-- Kontakt:
-discord: Neqooss#8170
-gmail: neqooss.pvp@gmail.com
-
-Życze miłego dnia, wieczoru lub nocy :D
