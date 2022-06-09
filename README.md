@@ -12,6 +12,6 @@ DeluxeJoin | Rozne lepsze wiadomosci AIRDROP/GRACZE Itd. https://unturnedstore.c
 Shutdown plugin | Fajny timer o restarcie: https://unturnedstore.com/products/117
 /ammo komenda: https://unturnedstore.com/products/244
 Lockdown serwa: https://unturnedstore.com/products/72
-Mute kogos https://unturnedstore.com/products/46
+Mute kogos ale tylko VOICE https://unturnedstore.com/products/46
 
 
