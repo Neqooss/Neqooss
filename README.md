@@ -1,5 +1,5 @@
-Maxskills: https://github.com/cinarbenli/ReponseMod_AutoMaxskills
-AnnounceUI | To guI https://unturnedstore.com/products/202
+Maxskills: https://github.com/cinarbenli/ReponseMod_AutoMaxskills [PLUGIN SIE ROZJEBAL LOL]
+AnnounceUI | To guI https://unturnedstore.com/products/202 [ZROBIONE]
 Wiadomosc o zdechnieciu: https://unturnedstore.com/products/144
 Vault: https://unturnedstore.com/products/105
 Frezzer | sfrezuj jakiegos typa https://unturnedstore.com/products/93
